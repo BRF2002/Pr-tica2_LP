@@ -1,1 +1,0 @@
-# Pr-tica2_LP
